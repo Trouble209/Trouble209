@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Trouble209
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Trouble209/Trouble209 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+Hi, I'M Trouble , I'm a virgin when it comes to the computers, but defently not new to getting money .Im trying to locate someone or someones 
+Who is down to teach me what they know and maybe even get a little money together. Im a G.C. Genaral Contractor so im always moving big numbers around and I dont know much about computers. Im wanting and willing to learn the ways in fact im down right despret to learn how to do all the cool shit
+That can be done on a computer. Im a easy going dude with a passion for computers and like to make a few extra bucks as well. So if theres anyone out there whos down to pass on some of there gift to a much well desereved student please hit me up you can reach me at andrewpughppp@yahoo.com or on telegram at dump,bang,slide. Hit me up even if you have some tools you want to sell or share that might help me get the info im after or maybe you just have some info for me hit me up
